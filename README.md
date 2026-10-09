@@ -1,4 +1,3 @@
-[折れた針で夜を刻め【歌詞】.txt](https://github.com/user-attachments/files/33234812/default.txt)
 折れた針で夜を刻め
 
 [Intro]
